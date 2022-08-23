@@ -1,3 +1,0 @@
-# wtfdoiknow.github.io
-
-shit...
